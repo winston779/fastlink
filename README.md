@@ -1,6 +1,6 @@
 # fastlink的最新地址
 
-最新地址：[https://fastlink.so](https://v02.fl-aff.com/auth/register?code=EyuI)
+最新地址：[https://fastlink.so](https://flaff-6b379b1a69.flaff9.cc/auth/register?code=EyuI)
 
 ## fastlink简介
 

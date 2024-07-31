@@ -1,6 +1,6 @@
 # fastlink的最新地址
 
-最新地址：[flcn.cc](https://cc03.fastlink.lat/auth/register?code=EyuI)
+最新地址：[flcn.cc](https://web03.fastlink.cc/auth/register?code=EyuI)
 
 ## fastlink简介
 

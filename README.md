@@ -1,6 +1,6 @@
 # fastlink的最新地址
 
-最新地址：[flcn.cc](https://web03.fastlink.cc/auth/register?code=EyuI)
+最新地址：[flcn.cc](https://flafflnk01.flaff9.cc/auth/register?code=EyuI)
 
 ## fastlink简介
 
@@ -18,7 +18,9 @@
 
 ## fastlink优惠码
 
-使用优惠码 75GUOQING 享受全场打7折
+使用优惠码 1111 享受全场打7折
+
+1111
 
 ## 套餐列表
 

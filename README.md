@@ -1,6 +1,6 @@
 # fastlink的最新地址
 
-最新地址：[flcn.cc](https://w04.flweba08.cc/auth/register?code=EyuI)
+最新地址：[flcn.cc](https://a01.flaff9.cc/auth/register?code=EyuI)
 
 ## fastlink简介
 
